@@ -1,0 +1,2 @@
+# Wooden-Hairbrush
+Natural boar bristle hairbrushes, when used correctly, are the best choice for your hair. While they do tend to be more costly than cheap plastic hairbrushes, you may find yourself using less styling products in your hair when you use a natural boar brush everyday. The natural boar bristles on the brushes are much easier on hair as well, resulting in less hair breakage. Click Here: /heavywoodencombbrush.com/
